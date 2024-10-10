@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yoaguilar   
 
-- 🌱 I’m currently learning 
+- 🌱 I’m always learning 
 - 📫 How to reach me ...
 
 <!---
